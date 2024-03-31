@@ -1,4 +1,3 @@
-# social
 ## Contact 📘
 
 - Telegram: [@https://t.me/chopperbrian](https://t.me/https://t.me/chopperbrian)
